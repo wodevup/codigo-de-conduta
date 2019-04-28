@@ -1,6 +1,6 @@
 # Código de Conduta WoDevUp
 
-![logo](https://ibb.co/nC57JHb)
+![logo](https://i.ibb.co/Sr9tChP/48dfc4f1-b62d-4d3b-9f05-f0aa05022591.png)
 
 ##### Acreditamos em um ambiente ambiente onde todas se sintam bem-vindas e possam compartilhar seus desafios, problemas e opiniões para que a comunidade possa auxiliar no crescimento de todas. O código de conduta é um guia de comportamento para todos os ambientes de nossa comunidade.
 
