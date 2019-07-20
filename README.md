@@ -36,6 +36,6 @@
 #### :small_orange_diamond: Ambos:
 ##### Dependendo da gravidade, entraremos com ações mais severas, como reportar à Polícia e ações judiciais.
 
-##### Para finalizar, queremos deixar bem claro que este grupo foi criado para ajudar você. É muito desagradável ter que tomar decisões extremas. Não nos obrigue a tomar tais medidas. 
-
+#### :small_blue_diamond: Para finalizar: 
+##### Queremos deixar bem claro que este grupo foi criado para ajudar você. É muito desagradável ter que tomar decisões extremas. Não nos obrigue a tomar tais medidas. 
 ##### Somos totalmente abertos a novas ideias e sugestões sobre eventos futuros.  Sinta-se livre para dar seu feedback também.
